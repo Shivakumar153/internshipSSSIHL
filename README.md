@@ -1,0 +1,10 @@
+# internshipSSSIHL
+![task 1](https://github.com/user-attachments/assets/049c06bb-804b-40a2-bbb8-c464ecb8a055)
+![task 2](https://github.com/user-attachments/assets/cfaafe65-e8c9-4f5c-9cb8-656d24a48f7d)
+![task 3](https://github.com/user-attachments/assets/803f27b3-77eb-49bf-91dc-a039470ae0f3)
+![task 4](https://github.com/user-attachments/assets/53c9ea76-4204-4196-9a8f-e26d1f8c4e74)
+![task 5](https://github.com/user-attachments/assets/d8296063-5bc7-43ec-8a9c-e82625a8b4b1)
+![task 6](https://github.com/user-attachments/assets/c8b50d87-27ef-43ff-ad14-e0f37eb1362b)
+![task 7](https://github.com/user-attachments/assets/1fa0e76d-f9f1-4cf8-9cc4-7a6ca20041cb)
+![task 8](https://github.com/user-attachments/assets/88f12f0a-38c9-4224-b1c4-8b3f3ac5cf2b)
+![task 9](https://github.com/user-attachments/assets/5213389f-6887-46a7-9595-0f113d432da7)
